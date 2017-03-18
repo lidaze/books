@@ -135,8 +135,8 @@
 
 身体技能的改变和年龄成反比，自然规律，无法避免。
 
-但大家都能做的，就是锻炼身体，只为了在自己老的时候，也可以成为一个精神矍铄的老头或者老太太，就像“[王德顺 王爷爷](http://baike.baidu.com/link?url=qty27ETjdGhOiQZixnk3KHTPWfSypchC--JDsdmAglfwo1fnp24u34iXFf4MhNz50vjfN0nj6wi9-A3DtRVm4ZEfbarTUPzaZYmjVNnagFHdrMzBLrRIKFCnnY2BGd7r)”一样。
-<br>
+但大家都能做的，就是锻炼身体，只为了在自己老的时候，也可以成为一个精神矍铄的老头或者老太太，就像“[王德顺 王爷爷](http://baike.baidu.com/link?url=qty27ETjdGhOiQZixnk3KHTPWfSypchC--JDsdmAglfwo1fnp24u34iXFf4MhNz50vjfN0nj6wi9-A3DtRVm4ZEfbarTUPzaZYmjVNnagFHdrMzBLrRIKFCnnY2BGd7r)”一样。  
+
 ![](/assets/小说家-王德顺.jpg)
 
 > 有氧运动，是指游泳和跑步这类时间长、运动量适度的运动。
