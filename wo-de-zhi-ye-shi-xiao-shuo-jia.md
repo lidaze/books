@@ -48,6 +48,12 @@
 游泳，跑步等等有氧运动，重要的是时间，而不是高强度。
 向[阿甘](http://baike.baidu.com/link?url=u_MNJq2s3h906IOjD2PhcYhP8mCifxSt-bXwjvcTuH89TKjLrDMg4ih3JcCvjcqu4QlYqee1LQ0BkoElBMyu_-7_6LDYUKZifI1Bc1OFnDFU9ayJUK7Cag1QsD7-THSZ)一样，跑下去，相信我，你会收获很多惊喜。
 
+> 我本来就喜欢跑步，仅仅是习惯性地坚持对自己胃口的事情而已。
+
+对于村上春树来说，跑步可以算是爱好了，所以才有可能坚持很多年。
+如果你讨厌一件事情，试问，你拿什么坚持下去。（非技能类的事）
+
+
 
 <br/>
 ### 第八章 关于学校
