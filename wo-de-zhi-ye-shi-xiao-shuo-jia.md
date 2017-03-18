@@ -43,6 +43,10 @@
 但大家都能做的，就是锻炼身体，只为了在自己老的时候，也可以成为一个精神矍铄的老头或者老太太，就像“[王德顺 王爷爷](http://baike.baidu.com/link?url=qty27ETjdGhOiQZixnk3KHTPWfSypchC--JDsdmAglfwo1fnp24u34iXFf4MhNz50vjfN0nj6wi9-A3DtRVm4ZEfbarTUPzaZYmjVNnagFHdrMzBLrRIKFCnnY2BGd7r)”一样。
 ![](/assets/小说家-王德顺.jpg)
 
+> 有氧运动，是指游泳和跑步这类时间长、运动量适度的运动。
+
+游泳，跑步等等有氧运动，重要的是时间，而不是高强度。
+向[阿甘](http://baike.baidu.com/link?url=u_MNJq2s3h906IOjD2PhcYhP8mCifxSt-bXwjvcTuH89TKjLrDMg4ih3JcCvjcqu4QlYqee1LQ0BkoElBMyu_-7_6LDYUKZifI1Bc1OFnDFU9ayJUK7Cag1QsD7-THSZ)一样，跑下去，相信我，你会收获很多惊喜。
 
 
 <br/>
