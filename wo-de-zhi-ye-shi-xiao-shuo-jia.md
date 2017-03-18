@@ -39,7 +39,7 @@
 > 然而遗憾的很，随着中年时代的到来，体力会渐渐衰落，爆发力逐渐下降，持续力也逐渐减退。肌肉退化，多余的赘肉越来越多。“肌肉易减，赘肉易增”，这成了我们身体的一道悲痛的命题。
 
 身体技能的改变和年龄成反比，自然规律，无法避免。
-但大家都能做的，就是锻炼身体，只为了在自己老的时候，也可以成为一个精神矍铄的老头或者老太太，就像“[王德顺](http://baike.baidu.com/link?url=qty27ETjdGhOiQZixnk3KHTPWfSypchC--JDsdmAglfwo1fnp24u34iXFf4MhNz50vjfN0nj6wi9-A3DtRVm4ZEfbarTUPzaZYmjVNnagFHdrMzBLrRIKFCnnY2BGd7r)”一样。
+但大家都能做的，就是锻炼身体，只为了在自己老的时候，也可以成为一个精神矍铄的老头或者老太太，就像“[王德顺 王爷爷](http://baike.baidu.com/link?url=qty27ETjdGhOiQZixnk3KHTPWfSypchC--JDsdmAglfwo1fnp24u34iXFf4MhNz50vjfN0nj6wi9-A3DtRVm4ZEfbarTUPzaZYmjVNnagFHdrMzBLrRIKFCnnY2BGd7r)”一样。
 
 
 
