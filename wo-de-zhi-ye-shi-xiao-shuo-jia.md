@@ -1,7 +1,7 @@
 # 《我的职业是小说家》 村上春树
 
 
-<img src="assets/wodezhiyeshixiaoshuojia.jpg" width="400">
+<img src="assets/wodezhiyeshixiaoshuojia.jpg" width="300"/>
 
 
 对我而言，太厚的书籍简直就是折磨，所以不太喜欢看小说，尤其是长篇小说。
