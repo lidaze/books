@@ -40,7 +40,7 @@
 
 身体技能的改变和年龄成反比，自然规律，无法避免。
 但大家都能做的，就是锻炼身体，只为了在自己老的时候，也可以成为一个精神矍铄的老头或者老太太，就像“[王德顺 王爷爷](http://baike.baidu.com/link?url=qty27ETjdGhOiQZixnk3KHTPWfSypchC--JDsdmAglfwo1fnp24u34iXFf4MhNz50vjfN0nj6wi9-A3DtRVm4ZEfbarTUPzaZYmjVNnagFHdrMzBLrRIKFCnnY2BGd7r)”一样。
-![](/assets/006C9DpIgy1fdpux40kn3j30fk0ad3yy.jpg)
+![](/assets/小说家-王德顺.jpg)
 
 
 
